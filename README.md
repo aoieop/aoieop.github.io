@@ -14,3 +14,9 @@ I went to CVS again and bought more medication as well as Panera to get some foo
 in two meals. But I think I will give myself a pass because I was physically unable to get breakfast this morning.
 
 Not sure exactly how much I should be writing to a public journal, but I will be considering a little bit of feedback.
+
+## 09/21/2025
+
+I think I want to create beauty. I have no outlet for my thoughts, and when I try to bring my ideas to life, I get disappointed. I neither have mastery over words nor images. I would like to create poetry, I would like create paintings, but I currently stand at a state where my skills on both fronts are still developing. I'm not at the point where I can fully utilizse inspiration. With photos, I think I have a clear concept of what is good and what looks good. I am also able to more easily produce and alter photographs. With art, I have a sense of what looks good, just not a means of producing and altering. With writing, I have neither sense a sense of quality nor the skill to produce. 
+
+I think I need to resume reading again. I need to read poetry, I need to practice painting. I need to stop disappointing myself.
